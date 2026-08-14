@@ -83,8 +83,7 @@ A 200 hour yoga teacher training program is often the foundation of a student's 
 
 A strong program should help students build practical skills, deepen their personal practice, understand the philosophy of yoga, and develop the confidence needed to guide others.
 
-For students considering teacher training in Bali, Yoga New Vision provides a traditional and comprehensive approach to yoga teacher education in Ubud. Its training combines yoga practice, philosophy, anatomy, breathwork, meditation, and teaching methodology.
-
+For students considering teacher training in Bali, [Yoga New Vision](https://yoganewvision.com/) provides a traditional and comprehensive approach to yoga teacher education in Ubud.
 ## Final Thoughts
 
 So, what makes a good 200 hour yoga teacher training program?
